@@ -77,7 +77,7 @@ I enjoy solving complex engineering problems, improving system performance, and 
 
 ### 🌐 Let's Connect!
 <a href="https://www.linkedin.com/in/darshitkumar-pipariya" target="_blank">LinkedIn</a>  
-📧 Email: **darshitkumarpipariya@gmail.com**
+📧 Email: **darshitkumar.pipariya@alumni.iiitb.org**
 
 ---
 
